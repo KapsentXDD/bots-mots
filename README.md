@@ -6,4 +6,5 @@ Sabahdan beri dışarıdaydım karşılık veremiyordun eve geçtim s8xting baş
 **4** Olarak aris kardeşimdir ister sövsün sövmesin adamın kod bilgisi maşallah güzel yanındaki çoçukları bilmem burdanda kusura bakmasın onada mahçup oldum :((
 **5** Olarak Juqest kardeşimin harbiden harbiden bir emeği olduğu için paylaşmıyorum kendisine bırakıyorum :))
 **6** Olarak altyapı sende zaten yokki diyen andavallar için bir ss bıraktım aşşağıda
+**7** Olarak arisin altyapılarınıda koydum sağda solda ratlı falan iyi forumlar
 ![image](https://cdn.discordapp.com/attachments/1008771823296581663/1071135621529223198/image.png)

@@ -7,4 +7,5 @@ Sabahdan beri dışarıdaydım karşılık veremiyordun eve geçtim s8xting baş
 **5** Olarak Juqest kardeşimin harbiden harbiden bir emeği olduğu için paylaşmıyorum kendisine bırakıyorum :))
 **6** Olarak altyapı sende zaten yokki diyen andavallar için bir ss bıraktım aşşağıda
 **7** Olarak arisin altyapılarınıda koydum sağda solda ratlı falan iyi forumlar Arisin bana attıkları jalix'inle orijinal sadece prim olmasın diye ravgar olanları aris yaptım!!
+**8** Olarak daha botu çalıştırmaya bile beni yanına çağıran andaval arkadaşım botu kurmayı ögrettim sana ögretirsin çıraklarına ZÇMNBZNÇÖMXZÖMBNXZNBÇÖXZÖXZM
 ![image](https://cdn.discordapp.com/attachments/1008771823296581663/1071135621529223198/image.png)

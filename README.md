@@ -1,4 +1,5 @@
 Bazı arkadaşlarım benle alakalı repo açmış zxmçnbxzçmbxzçnxzöm arisden bot çalıyorsun diyen arkadaşlarıma selam :XX)
+**Kapsentcim , Bot Dilenme Ve Övgüler ( Aris Lesnar / Jaylen Karışık )** NÇZ.MXCBNÇMZXBMXZÖÇNÖÇNXZM
 
 **1** Olarak jalix'i günahım kadar sevmem ama sen ne kepaze bir orxsbu çoçugusun la axk insandan birazcık utanma olur
 **2** Olarak jalixcim ekip botum yok diye yalvarıp sesde para teklif edip aldığın günleri ne ara unuttun senin'de ipini çekecegim az sonra...
